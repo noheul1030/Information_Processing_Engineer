@@ -3,7 +3,7 @@
 ## - ~~1회~~ 🔖  
 
 <details>
-<summary> 클릭 </summary>
+<summary> 다음기회에~ </summary>
 <div markdown="1">
 </br>
   
